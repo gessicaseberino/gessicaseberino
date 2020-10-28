@@ -1,4 +1,4 @@
-### Hi there, I'm Gessica 👋
+### Oi, meu nome é Gessica 👋
 
 Iniciante em desenvolvimento e atualmente aprendendo:
 
