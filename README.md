@@ -1,4 +1,4 @@
-### Oi, meu nome é Gessica 👋
+### Hi, my name is Gessica 👋
 
 Iniciante em desenvolvimento e atualmente aprendendo:                                                                                                                               
 Débutant en développement et apprenant actuellement:                                                                                                                               
